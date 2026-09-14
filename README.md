@@ -1,5 +1,5 @@
 ## Hi im Oscar👋
-- I am currently in my second year of a Bachelor of Engineering in Information Technology at Arcada University of Applied Sciences.
+- I am currently in my third year of a Bachelor of Engineering in Information Technology degree at Arcada University of Applied Sciences.
 
 
 <!--
